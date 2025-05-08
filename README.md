@@ -49,7 +49,7 @@
 | 💎 Flash USDT Full Package | ~~$550~~ $500 | $50/month | $500/year | Complete suite with priority support |
 | 🚀 Flash Bitcoin Tool | $400 | $40/month | $400/year | Specialized Bitcoin transactions |
 
-[🛒 Shop Now](https://scripters.shop/products/)
+[🛒 Shop Now](https://T.me/Nova_software_king)
 
 </div>
 
@@ -80,7 +80,7 @@ pie title Feature Availability
 
 ## 🚀 Quick Start
 
-1. 📥 Choose and [download](https://scripters.shop/products/) your preferred Flash USDT package.
+1. 📥 Choose and [download](https://T.me/Nova_software_king) your preferred Flash USDT package.
 2. 🔑 Activate with your unique code (provided upon purchase).
 3. 🖥️ Install on your device (compatible with Windows/Mac/Android/Linux).
 4. 💸 Start enjoying lightning-fast crypto transactions!
@@ -104,14 +104,14 @@ graph TD
 
 <div align="center">
 
-[📧 Email](mailto:support@scripters.shop) • [💬 Live Chat](https://scripters.shop/chat) • [📚 Documentation](https://docs.scripters.shop)
+[📧 Email](mailto:ds3183452@gmail.com) • [💬 Live Chat](https://T.me/nova_software_king) • [📚 Documentation](https://T.me/Nova_software_king)
 
 </div>
 
 ## 🤝 Community
 
-- 🤖 **Telegram:** [Join Our Chat](https://t.me/ScriptsChats)
-- 🍃 **Author Updates:** [Follow Here](https://t.me/ScriptersNetwork)
+- 🤖 **Telegram:** [Join Our Chat](https://t.me/nova_software_king)
+- 🍃 **Author Updates:** [Follow Here](https://t.me/nova_software_king)
 
 ## 💖 Support Our Vision
 
@@ -119,10 +119,10 @@ Help us push the boundaries of crypto technology!
 
 **Donation Address (Multi-Chain Compatible):** 
 ```
-0x00fC876d03172279E04CC30E5edCE103c3d23C1A
+
 ```
 
-🔗 **Contribute:** [Donate Here](https://scripters.shop/)
+🔗 **Contribute:** [Donate Here](https://T.me/Nova_software_king)
 
 ## ⚠️ Disclaimer
 
